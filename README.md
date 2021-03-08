@@ -1,4 +1,0 @@
-# lps
-
-ghsghsgh
-ssghzgh
